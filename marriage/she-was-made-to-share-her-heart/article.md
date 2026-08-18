@@ -1,9 +1,3 @@
-Daniel Schott · [@DOSHostNet](https://x.com/DOSHostNet)
-
-This is the public piece. Drafts and research stay private.
-
----
-
 # She Was Made to Share Her Heart. He Was Made to Carry It.
 
 If you have been married more than a year, you have heard the rule.
